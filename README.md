@@ -1,2 +1,2 @@
-# paulamiray.github.io
-Personal Portfolio
+# aritra23.github.io
+Personal Portfolio : https://aritra23.github.io/
